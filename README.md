@@ -1,1 +1,0 @@
-# ailog-term-of-service
